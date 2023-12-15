@@ -6,7 +6,7 @@
 
 <hr />
 
-ka mi sa ma! da si ke de ii!:sob:
+ka mi sa ma! da si ke de ii! :sob:
 
-谁能救救我:sob:
+谁能救救我 :sob:
 
